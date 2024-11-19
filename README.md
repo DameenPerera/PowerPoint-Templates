@@ -1,1 +1,1 @@
-This is just a collection of power point templates only
+This is just a collection of power point templates
